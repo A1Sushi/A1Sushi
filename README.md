@@ -5,7 +5,7 @@
 - 👾 I enjoy following combat sports such as mma and boxing in my free time! 
 
 ## Current
-- 🏆 Working a part-time job while I pursue programming full-time!  
+- 🏆 Working a part-time job while I pursue programming in my free-time  
 
 ## Connect with me
 - [Linkedin - Coming Soon]
